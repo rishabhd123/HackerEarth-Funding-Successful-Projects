@@ -1,1 +1,0 @@
-# HackerEarth-Funding-Successful-Projects
